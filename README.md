@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=weather-girl&label=dreams&color=b355e6)
+![](https://komarev.com/ghpvc/?username=weather-girl&label=trust+value&color=b355e6)
 
 i like all things space and purple
 
