@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=weather-girl&label=trust+value&color=b355e6)
+![](https://komarev.com/ghpvc/?username=weather-girl&label=goons&color=b355e6)
 
 
 <img width="133" height="433" alt="twins" src="https://github.com/user-attachments/assets/0dee0aef-400d-4ee0-b7be-29ff50361319"/>
