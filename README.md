@@ -6,5 +6,5 @@
 
 hello im gonna rmk this dumb readme someday idk
 
-[feed my goons](https://tamanotchi.world/u/18630) while youre here
+[feed my goons (tamanotchi)](https://tamanotchi.world/u/18630) while youre here
 </div>
