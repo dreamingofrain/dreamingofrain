@@ -6,7 +6,5 @@
 
 hello im gonna rmk this dumb readme someday idk
 
-i am either nice or mean (JOKINGLY guys) to my friends blame the angel and devil on my shoulders not me
-
 [feed my goons (tamanotchi)](https://tamanotchi.world/u/18630) while youre here
 </div>
